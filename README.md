@@ -1,6 +1,6 @@
 ![image](https://github.com/bobo-shark/bobo-shark/blob/main/sharkworking.jpg)
 
-- 👋 Hi, I’m cute @bobo-shark
+- 👋 Hi, I’m cute artist@bobo-shark
 - 👀 I’m interested in paints, arts, games and nice food
 - 🌱 I’m currently learning painting and growing up
 - 💞️ I’m looking to collaborate on doing games
