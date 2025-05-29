@@ -12,4 +12,4 @@ You can click the Preview link to take a look at your changes.
 --->
 
 - Bobo-shark is swimming in her big dream! Really big!
-- She must do harder so that she can finish her dream<3
+- She must work harder so that she can finish her dream<3
